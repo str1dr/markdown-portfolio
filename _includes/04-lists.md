@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Daniel
+2. is
+3. bored
